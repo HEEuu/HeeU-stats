@@ -8,7 +8,3 @@
     </td>
   </tr>
 </table>
-
-dsadasds
-ㅠㅜ
-dssd
