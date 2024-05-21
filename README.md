@@ -8,7 +8,3 @@
     </td>
   </tr>
 </table>
-dsdffsdㄹㅇㄴ
-dsads
-dsdssdfd
-ㅇgfd
