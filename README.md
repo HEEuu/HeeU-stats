@@ -8,7 +8,4 @@
     </td>
   </tr>
 </table>
-sd
-asd
-ㅇㄴㅇ
-ㄴㅇ
+sdsd
