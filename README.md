@@ -13,6 +13,5 @@ d
 ㅇ
 ads
 ds
-ㅇㄴ
-ㅌasdasdㅇㄴ
+ㅇㄴds
 fd
