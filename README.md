@@ -8,5 +8,5 @@
     </td>
   </tr>
 </table>
-
+git init add .
 adfds
