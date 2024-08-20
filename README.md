@@ -8,18 +8,3 @@
     </td>
   </tr>
 </table>
-git init add .
-adfds
-fdssgfsl
-fsdasASDㅎㄹㅇㅇㅁㄴdsaㅁㅇㄴ
-fsfdaㅇㄴㅁ
-daㅁㄴㅇㅇㄹㄴ
-ㅍㅌㅋDFZCㄹㄴㅇ
-asdnㄹ
-asdㅁㄴㅇasdㄹㄴㅇasd
-ㅁㄴㅇㅁㅇㄴsdasadㅁㄴㅇㄹㄴㅇㄹㄹ호
-ㅁㄴㅇㄴㅇㄹㄴㅇㄹasdlk
-ㄴㄹㅇㅁㄴㅇ
-ㅇㅁㄴㅇㄹ
-ㅇㅁㄴㅁㄴㅇㄴㅇ
-ㅁㅇㄴ
