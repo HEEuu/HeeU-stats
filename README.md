@@ -8,13 +8,3 @@
     </td>
   </tr>
 </table>
-ㄴㄹㅇ
-ㅁㄴ
-gir inir
-ㄴㅇㄹㅎㄹㅇㄴㅇㄹ
-ㅁㄴㅇ
-cvbㅇㄹㄴ
- ㅜvc
-ㅇㄴfgd
-ㄴㅇㄹdfs
-ㄹ
