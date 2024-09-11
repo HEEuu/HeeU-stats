@@ -8,8 +8,4 @@
     </td>
   </tr>
 </table>
-git
-t6y7u
-ㄴㅇ
-d
-ㅀ
+git init gita dd.
