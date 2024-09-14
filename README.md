@@ -11,3 +11,4 @@
 git init gita dd.
 sd
 ㅎ
+ㅇㅀ
