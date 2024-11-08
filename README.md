@@ -13,8 +13,7 @@ sd
 ㅎㅇ
 ㅇㅀㄴㅇsdㄴㅇ
 dㄴㅇ;lㄴㅇㅀ
-sdㅁㄴㅇsdaㅇㄴㅁㅇㄴASDDASASDASD 
-dfcㅀㅇㄴ
+sdㅁㄴㅇsdaㅇㄴㅁㅇㄴASDDASASDASD ㅇㄿ
 ㅇㄹㄴㅇdfㄴㅇㅇㄴ
 ydㅠㅎㅇㄴㅀ
 ㄹㅇ
