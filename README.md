@@ -9,14 +9,3 @@ ffffff<table style="width: 100%; background-color: #22272d; border-collapse: col
   </tr>
 </table>
 git init gita dd.
-sd
-ㅎㅇ
-ㅇㅀㄴㅇsdㄴㅇㄴㅇㅁ
-dㄴㅇ;lㄴㅇㅀ
-sdㅁㄴㅇsdaㅇㄴㅁㅇㄴASDDASASDASD ㅇㄿdfㄷㄱsda
-ㅇㄹㄴㅇdfㄴㅇㅇㄴㅀ
-ydㅠㅎㅇㄴㅀㅇㄹㄴk
-ㄹㅇ
-ㅇㄹ퓨
-fgd
-ㅁㄴㅇ
