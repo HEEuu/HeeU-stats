@@ -8,8 +8,7 @@ ffffff<table style="width: 100%; background-color: #22272d; border-collapse: col
     </td>
   </tr>
 </table>
-git init gita dd.
-fdㅇㅀㄹ
+git init gita dd.ㄹㅇ
 ㅊ
 dsahg
 fdsfdsㅇD
