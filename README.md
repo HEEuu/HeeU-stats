@@ -12,6 +12,6 @@ git init gita dd.ㄹㅇ
 ㅊ
 dsahg
 fdsfdsㅇDd
-ㄴㄹㅇsdds
+ㄴㄹㅇsddsxc
 ㅇㄴvsd
 ㅜ
