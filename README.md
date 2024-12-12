@@ -10,7 +10,7 @@ ffffff<table style="width: 100%; background-color: #22272d; border-collapse: col
 </table>
 git init gita dd.ㄹㅇ
 ㅊㄴㅇ
-dsahg
+dsahgㅇ
 fdsfdsㅇDdas
 ㄴㄹㅇsdds
 ㅇㄴvsd
