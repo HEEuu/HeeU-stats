@@ -12,7 +12,7 @@ git init gita dd.ㄹㅇn
 ㅊㄴㅇd
 dsahgㅇjd
 ㄴㄹㅇsddsCXㄴㅇds
-ㅇㄴvsd
+ㅇㄴvsddas
 ㅜ
 dㅀ
 fd휴
