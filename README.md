@@ -8,15 +8,3 @@ ffffff<table style="width: 100%; background-color: #22272d; border-collapse: col
 ㄴㅇ    </td>
   </tr>
 </table>
-git init gita dd.ㄹㅇnv호
-ㅊㄴㅇd
-dsahgㅇjd
-ㄴㄹㅇsddsCXㄴㅇdsㅇㄴㄴㅇㅁxdㄴㅇds
-ㅇㄴvsddas
-ㅜ
-dㅀㅍㅊe
-fd휴
-gfㅁㄴ
-ㄹㅇf
-Dsd
-d
